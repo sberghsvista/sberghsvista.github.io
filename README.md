@@ -1,1 +1,0 @@
-# sberghsvista.github.io
